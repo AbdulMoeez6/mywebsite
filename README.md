@@ -1,4 +1,4 @@
-# 🧁 MUNCH CUPS – The Ultimate Cups
+# 🧁 MUNCH CUPS – The Edible Cups
 
 **Munch Cups** are your go-to edible coffee cups — sustainable, tasty, and totally zero waste. Enjoy your favorite hot beverage and *munch the cup too*!
 
